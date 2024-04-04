@@ -13,3 +13,16 @@ Yaxshi harakatdan to'xtamang!
 Yaxshi harakatdan to'xtamang!
 
 Atta boy!
+Atta boy!
+Atta boy!
+Atta boy!
+Atta boy!
+Atta boy!
+Atta boy!
+Atta boy!
+Atta boy!
+Atta boy!
+Atta boy!
+Atta boy!
+Atta boy!
+
